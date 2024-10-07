@@ -20,7 +20,7 @@ I’m looking to collaborate on projects that involve:
 
 ## 📫 How to Reach Me
 Feel free to connect with me via:
-- [LinkedIn](www.linkedin.com/in/sylvain-cadoret)
+- [LinkedIn](https://www.linkedin.com/in/sylvain-cadoret/)
 
 ## ⚡ Fun Fact
 I have a keen interest in aquaristics and botany, which inspires my approach to design and nature-focused projects. I also enjoy diving and exploring new places!
